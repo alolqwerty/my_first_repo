@@ -5,3 +5,8 @@
 добавили текст через браузер
 
 добавим текст локально
+
+alijhfnc laiwurfhnaw;lkedmxwhoifmqo hfoqi rfoqinr fqoqoijhopih 
+qf; oihwer we
+rg wshgrbytrvt w
+ehevrth tyjhtjrty eh
