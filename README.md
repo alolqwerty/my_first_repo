@@ -7,3 +7,6 @@
 добавим текст локально
 
 добавил ветку
+
+idk bro
+idk whats going on here...
